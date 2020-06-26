@@ -8,7 +8,7 @@ This concept is inspired from the classic [Monday Night Wars](https://en.wikiped
 
 Wednesday Night Wars is an ongoing period of battle of Nielsen Ratings between weekly shows of WWE's *NXT* and the newly-formed company All Elite Wrestling (AEW)'s *Dynamite* started from 2nd October 2019, which also marks the debut episode of Dynamite. 
 
-#History of All-In & formation of AEW
+# History of All-In & formation of AEW
 ---
 
 In May 2017, a fan on Twitter asked *Wrestler Observer Newsletter* Journalist **Dave Meltzer** that if [**Ring Of Honor(ROH)**](https://en.wikipedia.org/wiki/Ring_of_Honor) can sell 10,000 tickets in their show. Meltzer however denied this with a retweet but famous Pro-Wrestler **Cody Rhodes**, then working in both ROH & [**New Japan Pro-Wrestling(NJPW)**](https://en.wikipedia.org/wiki/New_Japan_Pro-Wrestling) responded with a retweet that let him & his fellow [Bullet Club](https://en.wikipedia.org/wiki/Bullet_Club)/[The Elite](https://en.wikipedia.org/wiki/The_Elite_(professional_wrestling) stablemates **The Young Bucks** (a tag team of two brothers **Matt Jackson** and **Nick Jackson**) handle this situtation.
